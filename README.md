@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **parasharprabhakar94@gmail.com**
 
-- 📄 Know about my experiences [KUMAR'S RESUME (1).pdf](KUMAR'S RESUME (1).pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
